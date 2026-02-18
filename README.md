@@ -1,3 +1,0 @@
-# Joyeria-APP
---
-##DESCRIPCION
